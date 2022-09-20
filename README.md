@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @PBSCKumar
 - 👀 I’m interested in ... Traveling 
 - 🌱 I’m currently learning ... to update my skills
-- 💞️ I’m looking to collaborate on ... MY Intrests
+- 💞️ I’m looking to collaborate on ... MY interests
 - 📫 How to reach me ... 8463 
 
 <!---
